@@ -26,9 +26,6 @@ I was able to teach this course thanks to my **knowledge of construction procedu
   - Needs: professional vocabulary, confidence in grammar, effective communication with investors.  
   - Challenges: limited time due to long working hours, fear of sounding unprofessional.  
 
-- **Technical Writing Example**  
-  - Lesson scenario: writing a formal complaint email about defective building materials.  
-  - Includes vocabulary (steel, concrete, granite slabs, rebar, gypsum board) and a sample email with professional structure.  
 
 ---
 
